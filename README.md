@@ -1,5 +1,5 @@
 # Profile
-Welcome to the profile of wei
+Welcome to the profile of Pijus Paul Manab
 ## Education Experience
 1. MBA in Marketing
 2. BA in English
